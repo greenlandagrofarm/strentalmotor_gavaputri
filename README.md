@@ -1,0 +1,1 @@
+# strentalmotor_gavaputri
